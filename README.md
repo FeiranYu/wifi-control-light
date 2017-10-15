@@ -7,3 +7,7 @@ For a better dormitory life~
 Idea(flag) List:
 
 1.实现遥控关灯
+
+2...还在计划
+
+我们的目标是星辰大海！！！
